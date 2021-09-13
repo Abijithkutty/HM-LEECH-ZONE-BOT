@@ -1,8 +1,8 @@
 [![HM LEECH ZONE BOT](https://telegra.ph/file/9c54af2d6f60f215ab0ec.png)](https://t.me/hmrequestbot)
 
-owner of this repo :- [HM MODS](https://github.com/HM-MODS)
+owner of this repo :- [HM MODS](https://github.com/Abijithkutty)
 
-contact me :- [HM MODS](https://t.me/hmrequestbot)
+contact me :- [HM MODS](https://t.me/moviesworld2ty)
 
 
 
